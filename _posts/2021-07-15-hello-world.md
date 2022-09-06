@@ -100,9 +100,13 @@ You will also learn how to improve your team's communication and be introduced t
 Modern Millionaires Pricing
 ---------------------------
 
-The cost of training today's millionaires is high. Depending on the specifics of your plan, you could spend $5000 - $15,000. (DIY or DWY). Putting down serious cash alters the dynamic, it seems to me.
+The cost of training today's millionaires is high. 
 
-If you put up the money, you'll be more likely to go for broke and see it through to the end. But don't freak out. Depending on your requirements and budget, Modern Millionaires offers three different subscription tiers:
+If you put up the money, you'll be more likely it through to the end. 
+
+And it's worth it.
+
+But don't freak out. Depending on your requirements and budget, Modern Millionaires offers three different subscription tiers:
 
 ### DO-IT-YOURSELF (DIY) Package
 
@@ -160,19 +164,19 @@ To start a successful firm, you won't need to worry about internet marketing or 
 Modern Millionaires Support
 ---------------------------
 
-There are various resources available in addition to the online training course. The sales call you to go on with them will be the major piece of help you provide. However, it appears that customer service ends once they have your money.
-
-They say there will be a secret Facebook community and competent coaches to help you along the way, however, based on my research, it appears that none of these resources are active at this time.
+There are various resources available in addition to the online training course. The sales call you to go on with them will be the major piece of help you provide. 
 
 Modern Millionaires Refund
 --------------------------
 
-No matter how satisfied you are with Modern Millionaires, you will not get your money back. What you receive from them are supposedly digital assets, at least according to their website. If you want a refund, there is no way to get the training back. You can quit at any time before the "no questions asked" return phase if you decide it's not for you. There is a one-on-one call with a coach before you start where you may ask any questions you have. If you decide to buy the software but then are unable to install it, you can put off the installation until a later date.
+No matter how satisfied you are with Modern Millionaires, you will not get your money back. What you receive from them are supposedly digital assets, at least according to their website. If you want a refund, there is no way to get the training back. You can quit at any time before the "no questions asked" return phase if you decide it's not for you.
+
+And there shouldn't be. 
+
+This is entrepreneurship - make a decision and stick to it.
 
 Making money with Modern Millionaires
 -------------------------------------
-
-Where are you at in your studies? When you stitch up that hole in your pocket, are you going to be able to study, too?
 
 There is an overwhelming amount of material to cover to get the education that will make Monday mornings bearable. Instead, you'll gain two talents from these guys: 
 
@@ -181,11 +185,14 @@ There is an overwhelming amount of material to cover to get the education that w
 
 People will visit your virtual billboard and give the advertised company a call. These cash generators will offer you monthly salaries that much exceed what you might earn working a regular 9 to 5.
 
+Get ready to WORK. And if you do, you can live the rest of your life the way you've wanted to. 
+
 What Makes Modern Millionaire a Potentially Good Choice
 -------------------------------------------------------
 
 <img width="1333" alt="modern millionaries chance   abdul" src="https://user-images.githubusercontent.com/45643901/188683324-bcfdbd8b-9e45-41da-868c-8adf985bee42.png">
 
+Here's what they have to say:
 
 *   Every month, we add fresh content to the Modern Millionaires program. Although there are many lead generation courses out there, most of them haven't kept up with the times in terms of internet marketing. And we've all seen that this has been happening more frequently recently.
 *   This lead generation training program is comprehensive. It covers important components for novices and offers new and valuable knowledge for the experienced.
@@ -206,9 +213,9 @@ Is Modern Millionaires Legit?
 
 Those Modern Millionaires are the real deal, no doubt. The application may not be entirely legitimate, but the underlying business strategy certainly is. Buying Facebook as well as Google advertisements may be complicated, so it's important to locate the proper expertise for the task. However, social media advertising has been rapidly expanding over the past several years.
 
-Promoting other people's businesses is a certain way to amass a sizeable fortune. However, you may start an internet business in a variety of ways. And even if you're determined to make a living as an internet marketer, there are better choices than Modern Millionaire.
+They teach alot of the same things that got me to where I am today - from $0 to a millionaire. 
 
-Do not forget that we are not being compensated in any way for endorsing the products we evaluate. In my opinion, running a business entirely online, such as an advertising agency, is a poor use of your time and resources since you waste a ton of potential revenue.
+So yes, these programs can work. If you work them.
 
 Conclusion
 ==========
@@ -219,8 +226,8 @@ In fact, the ModernMillionaires program is one of the best on the market. They'v
 
 >> [Click here to check out the ModernMillionaire program!](https://devin.to/modernmillionaires-gh)
 
-In conclusion, Modern Millionaires are a good way to put money away for the future. Modern Millionaires program is designed to help participants develop their abilities, broaden their professional networks, and master low-risk methods of company expansion.
+Modern Millionaires program is designed to help participants develop their abilities, broaden their professional networks, and master low-risk methods of company expansion.
 
 Many users have reported remarkable results after following the program's recommendations, as detailed in the site's testimonials section. We think it has a wealth of useful data. Get a firm grasp on the fundamentals of internet marketing and how to effectively generate leads with this guide. The possibility is enormous for people who want to get into internet marketing and create a sustainable business over time, but only if they are ready to put in the time and effort necessary to make it successful.
 
-Consequently, the Modern Millionaires curriculum is worth looking into if you want a lively, engaging education that will encourage and excite you to succeed at every turn.
+Consequently, the Modern Millionaires curriculum is worth looking into if you want a lively, engaging education that will encourage and excite you to succeed at every turn -- oh yeah, and to finally get a chance at becoming a millionaire!
