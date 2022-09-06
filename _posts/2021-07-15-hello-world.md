@@ -11,6 +11,8 @@ The Modern Millionaires claims to teach its readers how to generate leads effect
 
 Let's find out. With the help of Modern Millionaires, you may learn how to create leads and then resell them to companies for a profit.
 
+_Legal Disclaimer: This post contains affiliate links, which means that if you buy through our links we may earn a commission at no expense to you. We only recommend products we stand behind, and maybe of the products we review we do not recommend, and are up-front about it._
+
 [Modern Millionaires Program](https://devin.to/modernmillionaires-gh)
 --------------------------------
 
